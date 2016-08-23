@@ -1,2 +1,1 @@
-# gabbysprite
-Gabbyville Sprite
+PUTANG INANG BUHAY TO
